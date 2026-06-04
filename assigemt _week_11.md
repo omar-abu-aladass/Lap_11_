@@ -1,1 +1,0 @@
-C:\Users\User\source\repos\HomeWork_week11_Lap\HomeWork_week11_Lap.sln
